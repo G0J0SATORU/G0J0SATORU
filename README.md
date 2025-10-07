@@ -1,4 +1,5 @@
-## Hi there 👋
+![0ad90e3e603035308e6fb860f0c3298c](https://github.com/user-attachments/assets/c4f6acf4-92b1-4f5e-b172-2a17ca0d1d7c)
+
 
 <!--
 **G0J0SATORU/G0J0SATORU** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

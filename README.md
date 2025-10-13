@@ -1,6 +1,6 @@
 ![image (1)](https://github.com/user-attachments/assets/8e77de6d-92ea-4ea3-bdfe-c735f939965b)
 
-
+<p>this is a wigglypaint megumi i did for Frizzy(Tori)</p>
 
 <!--
 **G0J0SATORU/G0J0SATORU** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

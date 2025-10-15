@@ -3,6 +3,9 @@
 <p>this is a wigglypaint megumi i did for Frizzy(Tori)</p>
 <p>And No you can't use it unless you're Frizzy </p>
 
+
+
+<p>(Also if u look closely at my pfp its gojo under the icp album hehe)</p>
 <!--
 **G0J0SATORU/G0J0SATORU** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
